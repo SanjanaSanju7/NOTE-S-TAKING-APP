@@ -1,1 +1,0 @@
-# NOTE-S-TAKING-APP
